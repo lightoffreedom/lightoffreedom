@@ -1,6 +1,9 @@
 <p align="center">
 "Don't be a fool, My knight."
-"You can always change your destiny."
+  <p align="center">
+    ...
+<p align="center">
+"Afterall, you can always change your destiny."
 <p align="center">
 (shadi-poo is cooking..)
 
