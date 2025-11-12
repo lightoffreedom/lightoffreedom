@@ -1,11 +1,10 @@
 <p align="center">
-"Don't be a fool, My knight."
+"Your brave, and bold."
   <p align="center">
     ...
 <p align="center">
-"Afterall, you can always change your destiny."
-<p align="center">
-(shadi-poo is cooking..)
+"Perhaps I enjoy your brawness."
 
-https://github.com/user-attachments/assets/65209ce1-b981-457d-9405-620f7e88b23b
-
+<p align="center"> 
+  
+[![hhhh.jpg](https://i.postimg.cc/y65kMR0m/hhhh.jpg)](https://postimg.cc/BtTSDXYb)
