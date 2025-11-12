@@ -4,7 +4,6 @@
     ...
 <p align="center">
 "Perhaps I enjoy your brawness."
-
-<p align="center"> 
-  
-[![hhhh.jpg](https://i.postimg.cc/y65kMR0m/hhhh.jpg)](https://postimg.cc/BtTSDXYb)
+<p align="center">
+<img src="https://i.postimg.cc/y65kMR0m/hhhh.jpg"/>
+<p align="center">
