@@ -1,11 +1,11 @@
 <p align="center">
-"Your brave, and bold."
+"stay, for awhile?"
   <p align="center">
     ...
 <p align="center">
-"Perhaps I enjoy your brawness."
+"I like when you're around."
 <p align="center">
-<img src="https://i.postimg.cc/RVfxrfdv/G9y-CNJMWw-AEIpx6.jpg"/>
-  UV-LIGHTTTT THEIR SO CUTTEE ; FOLLOW SHADS TWT
-  
+<img src="https://i.postimg.cc/NjTpJvsz/G-1e-X86Ww-AA7h9z.png"/>
+ <p align="center">
+  shaddi-bae's art . . follow his twt <a href="https://x.com/pinkiedashing">twt</a>
 <p align="center">
