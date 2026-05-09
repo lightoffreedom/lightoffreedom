@@ -1,11 +1,8 @@
 <p align="center">
-"stay, for awhile?"
+CANCEL SHAD AKA UV-LIGHT UV LIGHT WILL NEVR BE CANON
   <p align="center">
-    ...
 <p align="center">
-"I like when you're around."
-<p align="center">
-<img src="https://i.postimg.cc/NjTpJvsz/G-1e-X86Ww-AA7h9z.png"/>
+<img src="https://i.postimg.cc/pXc9wfFF/Screenshot-2026-05-09-at-3-23-29-AM.png"/>
  <p align="center">
-  shaddi-bae's art . . follow his twt <a href="https://x.com/pinkiedashing">twt</a>
+  shaddi-bae . . follow his <a href="https://x.com/pinkiedashing">twt</a> bc i dotn post on there actually hes forcing me to say this so
 <p align="center">
